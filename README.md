@@ -1,2 +1,2 @@
 # Pixify
-just me trying to understand if i want to do something regarding programming in my life &lt;3
+Solo io che cerco di capire effettivamente se ho un futuro da programmatrice <3
